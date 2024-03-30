@@ -6,7 +6,7 @@
 
 💞️ I’m all about teaming up on wild and wacky FiveM projects that blow minds!
 
-📫 Wanna chat? Hit me up on Discord (username: hsoscar or join Discord server: https://discord.gg/rrwAGe2wmU for a good laugh or to talk serious dev stuff.
+📫 Wanna chat? Hit me up on Discord (username: hsoscar or join Discord server: https://discord.gg/rrwAGe2wmU) for a good laugh or to talk serious dev stuff.
 
 😄 Pronouns: He/Him/His
 
