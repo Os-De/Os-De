@@ -1,4 +1,4 @@
-👋 Hi, I’m @Os-De, but you can call me Oscar 😎
+👋 Hi, its Oscar-Development here, but you can call me Oscar 😎
 
 👀 I’m into making virtual worlds more awesome, one line of code at a time.
 
@@ -7,8 +7,6 @@
 💞️ I’m all about teaming up on wild and wacky FiveM projects that blow minds!
 
 📫 Wanna chat? Hit me up on Discord (username: hsoscar or join Discord server: https://discord.gg/rrwAGe2wmU) for a good laugh or to talk serious dev stuff.
-
-😄 Pronouns: He/Him/His
 
 ⚡ Fun fact: Did you know I once coded a llama into a game just for kicks? 🦙
 
@@ -26,4 +24,4 @@ The Lowdown:
 
 🌐 Online HQ: No fancy website yet, but you can catch all my coding capers right here on GitHub.
 
-🌿 PS I AM 420 FRIENDLY 🌿
+🌿🤫PS🤫: I am 420 friendly 😇🌿
