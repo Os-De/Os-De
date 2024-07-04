@@ -23,5 +23,3 @@ The Lowdown:
 🔧 Troubleshooting: When stuff breaks, I break it down and keep tweaking until it works then put it all back together long 🚬💨 Persistence is key!
 
 🌐 Online HQ: No fancy website yet, but you can catch all my coding capers right here on GitHub.
-
-🌿🤫PS🤫: I am 420 friendly 😇🌿
